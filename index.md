@@ -27,4 +27,4 @@ We do not and will not sell, rent, or share your personal information with any t
 
 **5. Contact Us**
 
-If you have any questions about this privacy policy, please contact us at [Your Email Address].
+If you have any questions about this privacy policy, please contact us at adhithya688@gmail.com
